@@ -1,0 +1,1 @@
+# vorisol-de.corevance.shop
